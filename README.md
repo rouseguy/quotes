@@ -1,2 +1,1 @@
-# quotes
-Interesting quotes that I come across
+A repository to maintain/record interesting quotes that I come across
