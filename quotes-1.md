@@ -4,3 +4,9 @@
 
 > “You can’t lose everything when what you care about are the people and the memories you have.” 
 – Blake Mycoskie
+
+---
+
+> “When you are young, work to learn, not to earn.” — Robert Kiyosaki
+
+---
