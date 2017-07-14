@@ -10,3 +10,8 @@
 > “When you are young, work to learn, not to earn.” — Robert Kiyosaki
 
 ---
+
+> “The key secret to success is not excessive expertise, but the ability to use it. Knowledge is worthless unless it is applied.” — Max Lukominskyi
+
+---
+
