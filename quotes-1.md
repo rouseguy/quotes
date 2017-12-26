@@ -1,6 +1,6 @@
 > ”Somebody once told me the definition of hell:
 
-“On your last day on earth, the person you became will meet the person you could have become.” — Anonymous
+> “On your last day on earth, the person you became will meet the person you could have become.” — Anonymous
 
 ---
 
